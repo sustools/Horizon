@@ -17,4 +17,5 @@ https://www.youtube.com/watch?v=4CYLSgWdkCE&t=3s
 
 # Information
 
-Deleted The Old Versions Of Horizon Because Of Private Reasons
+Deleted The Old Versions Of Horizon Because Of Private Reasons.
+Horizon Is Only Availbe For Some People Now Because Of The Key System.
